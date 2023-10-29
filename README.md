@@ -208,8 +208,6 @@
 
 地址链接：[@AISGK_Bot](http://t.me/aishegongkubot?start=AISGK_4DQTJF6S)
 
-***爱社工库官方充值350元起步，少量查询不划算，可联系人工付费解码：[@Crush54](https://t.me/Crush_54)***（仅限AISGK解码）
-
 
 <br>
 
