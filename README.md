@@ -242,6 +242,7 @@
 
 地址链接：[@AISGK_Bot](http://t.me/aishegongkubot?start=AISGK_4DQTJF6S)
 
+***爱社工库付费解码：[@Crush_54](https://t.me/Crush_54)***
 
 <br>
 
